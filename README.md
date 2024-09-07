@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **asilbekxolmatov2002@gmail.com**
 
-- ⚡ Fun fact **I like play game**
+- ⚡ Fun fact **I like play games**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
