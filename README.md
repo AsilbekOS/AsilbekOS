@@ -1,4 +1,3 @@
-<img align="center" src="https://drive.google.com/file/d/1hDifBF-fysJiG87HFzH7y1ebRVR_WMRZ/view?usp=drive_link">
 <h1 align="center">Hi 👋, I'm Asilbek</h1>
 <h3 align="center">A passionate backend developer from Uzbekistan</h3>
 
