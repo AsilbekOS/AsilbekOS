@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **asilbekxolmatov2002@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QJjuom2VkoMAf-K-2v0UXhAEGnxhFQUz/view?usp=drive_link](https://drive.google.com/file/d/1QJjuom2VkoMAf-K-2v0UXhAEGnxhFQUz/view?usp=drive_link)
+
 - ⚡ Fun fact **I like play games**
 
 <h3 align="left">Connect with me:</h3>
